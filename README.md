@@ -6,5 +6,6 @@ From a business perspective, CoutureAI enhances user engagement, increases purch
 ![WhatsApp Image 2025-03-08 at 10 55 00_8719c47c](https://github.com/user-attachments/assets/c3589231-d634-490e-acba-e947973bd1ac)
 ![WhatsApp Image 2025-03-08 at 10 54 43_a20d38d6](https://github.com/user-attachments/assets/31358dec-294f-4e66-879c-af210feded6f)
 Examples of other such generated images:
+![WhatsApp Image 2025-03-08 at 11 21 24_7abc61a3](https://github.com/user-attachments/assets/0d52b145-1ee6-4627-bc9e-0a4b8aaaa5de)
 
 
